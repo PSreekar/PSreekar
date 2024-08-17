@@ -2,7 +2,7 @@
 - 👀 I’m interested in Innovation
 - 🌱 I’m currently learning Full Stack Development
 - 💞️ I’m looking to collaborate on App Development
-- 📫 How to reach me @psreekar04@gmail.com
+- 📫 How to reach me @psreekar5@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Rap Music forever❤️
 
