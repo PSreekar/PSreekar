@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on App Development
 - 📫 How to reach me @psreekar5@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Rap Music forever❤️
+- ⚡ Rap Music
 
 <!---
 PSreekar/PSreekar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
